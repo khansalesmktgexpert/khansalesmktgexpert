@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @khansalesmktgexpert
+- 👋 Hi, I’m Asif khan, MBA.
 - 👀 I’m interested in ...innovative sales strategies, marketing automation, and data-driven decision-making.
 - 🌱 I’m currently learning ...advanced digital marketing techniques and AI-driven sales analytics.
 - 💞️ I’m looking to collaborate on ...projects that involve growth hacking, customer relationship management, and marketing technology.
